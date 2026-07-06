@@ -1,4 +1,4 @@
-# 
+# Instantáneo birdeye sniper bot flujo de trabajo para Mac OS | Seguro birdeye sniper bot flujo de trabajo para PC Windows. Con visualización de datos y evaluación de riesgos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
